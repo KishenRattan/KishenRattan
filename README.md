@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### Hi there 👋, My name is Kishen Rattan
+###  My name is Kishen Rattan
 #### Data Analist
 
 
